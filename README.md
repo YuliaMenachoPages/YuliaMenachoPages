@@ -1,4 +1,4 @@
-![image](https://github.com/YuliaMenachoPages/YuliaMenachoPages/assets/111748377/9fabd1cf-dc82-48c6-8749-81e6932c11e5)
+![image (1)](https://github.com/YuliaMenachoPages/YuliaMenachoPages/assets/111748377/a6be8f4d-e4cd-4316-ae1a-c21a73ab35e0)
 
 
 
