@@ -1,5 +1,5 @@
 
-![image (3)](https://github.com/YuliaMenachoPages/YuliaMenachoPages/assets/111748377/e05feac8-fc17-4a1a-99e0-8a4b32859f0e)
+![image (1)](https://github.com/YuliaMenachoPages/YuliaMenachoPages/assets/111748377/0bcaa172-84c4-4825-9388-b471d896edf5)
 
 
 ### Hi there 👋
