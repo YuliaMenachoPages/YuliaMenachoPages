@@ -1,4 +1,5 @@
-![door](https://github.com/YuliaMenachoPages/YuliaMenachoPages/assets/111748377/4172c112-82c4-48a6-994f-b4da2daa7ccd)
+![image](https://github.com/YuliaMenachoPages/YuliaMenachoPages/assets/111748377/9fabd1cf-dc82-48c6-8749-81e6932c11e5)
+
 
 
 ### Hi there 👋
