@@ -1,3 +1,6 @@
+![door](https://github.com/YuliaMenachoPages/YuliaMenachoPages/assets/111748377/4172c112-82c4-48a6-994f-b4da2daa7ccd)
+
+
 ### Hi there 👋
 
 <!--
